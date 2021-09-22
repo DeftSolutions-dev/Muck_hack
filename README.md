@@ -11,5 +11,4 @@ vk.com/desirepro
 
 Desire Pro - FUCK#9803
 
-Делалось и записывалось на слабом ноутбуке (Офисный) по этому и лаги :(
 Muck Mono Internal Cheat 
